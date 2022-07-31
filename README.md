@@ -1,5 +1,8 @@
 # 개발자 제공 오름 정보
 
+* 현재 길 상태와 다를 수 있음에 유의하세요. 어떤 안전사고의 책임을 지지 않습니다.
+<br><br><br>
+
 ![IMG_E1669](https://user-images.githubusercontent.com/28820470/182040307-5abf618e-bc6d-4343-aa87-a7c364791b80.JPG)
 <br>머체왓 + 거린족은오름 + 민오름
 <br><br><br>
