@@ -3,6 +3,10 @@
 * 현재 길 상태와 다를 수 있음에 유의하세요. 어떤 안전사고의 책임을 지지 않습니다.
 <br><br><br>
 
+![IMG_E1735](https://user-images.githubusercontent.com/28820470/201485416-02893e26-084d-4d11-904e-4c9dfb90d4f7.JPG)
+<br>대록산 + 남영목장 + 소록산
+<br><br><br>
+
 ![IMG_E1734](https://user-images.githubusercontent.com/28820470/201485149-aaceec55-3936-42ca-8c42-dd4547f51f7d.JPG)
 <br>거슨세미오름 + 안돌오름 + 밧돌오름
 <br><br><br>
