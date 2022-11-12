@@ -3,6 +3,10 @@
 * 현재 길 상태와 다를 수 있음에 유의하세요. 어떤 안전사고의 책임을 지지 않습니다.
 <br><br><br>
 
+![IMG_E1736](https://user-images.githubusercontent.com/28820470/201486019-373df33f-9e00-4f77-aebb-bf932b5414a1.JPG)
+<br>거친오름 + 진물굼부리오름 + 절물자연휴양림 + 민오름 둘레길
+<br><br><br>
+
 ![IMG_E1735](https://user-images.githubusercontent.com/28820470/201485416-02893e26-084d-4d11-904e-4c9dfb90d4f7.JPG)
 <br>대록산 + 남영목장 + 소록산
 <br><br><br>
