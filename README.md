@@ -3,6 +3,14 @@
 * 현재 길 상태와 다를 수 있음에 유의하세요. 어떤 안전사고의 책임을 지지 않습니다.
 <br><br><br>
 
+![IMG_2270](https://github.com/do-youn-Lee/oleumi_web/assets/28820470/77e69cf4-d214-4e87-95a1-f2a441aa40dd)
+<br>고냉이굴오름 + 칡오름 + 족은칡오름
+<br><br><br>
+
+![IMG_2269](https://github.com/do-youn-Lee/oleumi_web/assets/28820470/642a0538-f341-4900-80df-016dc2507ac1)
+<br>열안지오름 + 밧세미오름 + 안세미오름
+<br><br><br>
+
 ![IMG_E1736](https://user-images.githubusercontent.com/28820470/201486019-373df33f-9e00-4f77-aebb-bf932b5414a1.JPG)
 <br>거친오름 + 진물굼부리오름 + 절물자연휴양림 + 민오름 둘레길
 <br><br><br>
